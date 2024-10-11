@@ -1,1 +1,3 @@
 # CrEEpYcLoneS
+
+In the fog-shrouded woods, a werewolf prowled, its howl echoing through the night. Nearby, clowns danced in a twisted circus, their laughter mingling with cries of terror. Slender Man loomed in the shadows, observing every move, ready to strike. Just then, Frankenstein's monster stumbled upon Slappy, the sinister puppet, who whispered dark secrets of chaos and fear. Intrigued, the monster joined forces with Slappy, and together they hatched a chilling plan to unleash mayhem on the unsuspecting townsfolk. As the moon rose high, the woods came alive with haunting laughter and howls, a night of terror unfolding under the watchful eyes of their dark alliance.
